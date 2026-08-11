@@ -672,9 +672,7 @@ May happiness always stay
 with you.
 
 
-and yeah I don't know if you'll like this surprise of mine or not. It took me about 45 days to make it. You may not like it.☺️
-
-also remember that there was a little girl who always wanted to be loved by you..bt u left her in her worst time..uk what.. ami still boshe thke and thinking when u call me n tell me its okay lol..ami oi pain ta ekhono sojjo korte parinh..ami ekhono pari nah tbh..i am so clingy just infront of you...for you...amr mon chy ektabar jdi dekhte prtm....ami prinh strong dekhaite ki krbo..je manush valobashte baddho kore oi manush chere dile oita ki khub easy hoy ? amr ekhono feel hy apni amr khub kache..ami 1ta mnt er jonno o apnr chinta matha theke falaite prinh...block krlei ki manushk bhula jy bolo?? How much disrespect I accepted just bcz I want you...ami kstw paileo prokash krtm nh...apni amr shei chand je amre ondhokare raikhao ashar alo dito..kintu chaader smy hole ekdom omabossar moto jmn shob ondhokar kore dito?? apnio amr life tare ekdom dumray muchray disen...ktha gula besh immature hoye gese right? I don't want to say that but I can't stay without saying..i don't want to ruin your day..I was so excited for this day...more than you...I know now there's nothing..no meaning of my words..my existence...i still waiting for you still..i can't forget tbh..i have nothing to do..bt I wish I could tell you that I never ignored you..I never told you lie I never ...you misunderstood...I could hug you and tell you I wasn't wrong for you...bt...
+and yeah I don't know if you'll like this surprise of mine or not. It took me about 45 days to make it. You may not like it..
 
 
 You are very strong and dedicated...I hope you'll reach that peak you wanted to.. u can do it... don't worry.. don't push your luck... don't be upset..it will happen however you want..be faithful on your creator🫶🏻
@@ -692,7 +690,7 @@ Stay happy.
 
 Keep shining forever. ✨💜
 
-and pls pcbicswyml💔
+Good bye  :3
 `;
 
 
