@@ -690,6 +690,8 @@ Stay happy.
 
 Keep shining forever. ✨💜
 
+maybe we can't be together bt i hope we will 🫶🏻
+
 Good bye  :3
 `;
 
